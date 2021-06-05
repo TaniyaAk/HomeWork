@@ -1,3 +1,4 @@
-# HomeWork
-Today's date 06/04/2021
-Today is Friday 
+# Today’s Highlight in History:
+
+
+ Today is Friday, June 4, the 155th day of 2021.
